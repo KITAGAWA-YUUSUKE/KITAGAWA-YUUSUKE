@@ -6,5 +6,6 @@
   <a href="https://singingrevolution.straw.page">strawpage</a>
   <a href="https://spacehey.com/estonia">spacehey</a>
   <a href="https://pronouns.cc/@eesti">pronouns.cc</a> <br>
-  <p>making this look pretty later i can't be bothered.. I'm still at the butt start of p4g dont spoil it to me thanks xx</p>
+  <p>making this look pretty later i can't be bothered.. I'm still at the butt start of p4g dont spoil it to me thanks xx</p> <br>
+  <p>SHUKITA AND SOUYO INTT!!</p>
 </div>
